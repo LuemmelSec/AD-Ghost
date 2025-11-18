@@ -18,3 +18,4 @@ People, please don't believe all this AI generated cyber bullshit. Use your comm
 Thanks.  
 
 Cant' release the tool, sorry. It's too dangerous.   
+Okay I did, including how to detect this "magic".
